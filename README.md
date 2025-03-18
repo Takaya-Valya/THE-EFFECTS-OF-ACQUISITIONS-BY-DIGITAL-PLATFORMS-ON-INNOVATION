@@ -1,1 +1,1 @@
-# The-Effects-Of-Acquisition-By-Digital-Platforms-On-Innovation
+# The-Effects-Of-Acquisitions-By-Digital-Platforms-On-Innovation
